@@ -1,8 +1,10 @@
 ## Practice Like You Play
 
-### You Be You
+### You Must Be You
 
-Be Un-Categorizable
+You define who you will become; it's all up to you.
+
+Create, Imagine, Realize ... but be Un-Categorizable
 
 ### Eat Your Own Dogfood
 
