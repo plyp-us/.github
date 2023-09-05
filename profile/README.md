@@ -1,13 +1,13 @@
 ## Practice Like You Play
 
-### You Must Be You
+### You Define You With Your Practice
 
-You define who you will become; it's all up to you.
+Perfect who you will become; your practice is up to you.
 
-Create, Imagine, Realize ... but be Un-Categorizable
+Create, Imagine, Realize ... you are free to be Un-Categorizable
 
 ### Eat Your Own Dogfood
 
-Develop your own discipline, but practice what you preach.
+Elevate your practice; practice your discipline to elevate your discipline.
 
-Improve your discipline with disciplined practice and continuously improved discipline.
+Continuously improve so that your perfected discipline is continuous improvement.
